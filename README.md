@@ -1,0 +1,2 @@
+# informatika
+masih pemula 🙏
