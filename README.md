@@ -1,3 +1,3 @@
 # informatika
-masih pemula :D
-Jangan dibully ygy
+<p> masih pemula :D </p>
+<p> Jangan dibully ygy </p>
