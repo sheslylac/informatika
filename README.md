@@ -1,2 +1,3 @@
 # informatika
-masih pemula 🙏
+masih pemula :D
+Jangan dibully ygy
